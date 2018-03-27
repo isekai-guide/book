@@ -1,4 +1,4 @@
-# Culture Shock
+# Culture Shock & Revolution
 
 If you find yourself falling into another world wherein other sapient lifeforms reside, chances are you're bound to experience quite a bit of culture shock. Unless you happen to have landed within the _Xanadu Bureaucracy of the Seraphim Incorruptible_, the residence of the new world you now inhabit are likely to hold various customs and beliefs that contradict your sensibilities, and possibly even go against your ethics and morality.
 
